@@ -2,9 +2,9 @@
 
 [1 on 1 Soccer](https://funblockedgames66.blogspot.com/2021/05/1-on-1-soccer.html)
 
-[TEXT](Link)
+[12 Holes of Christmas](https://funblockedgames66.blogspot.com/2021/05/12-holes-of-christmas.html)
 
-[TEXT](Link)
+[13 Days in Hell](https://funblockedgames66.blogspot.com/2021/05/13-days-in-hell.html)
 
 [TEXT](Link)
 [TEXT](Link)
